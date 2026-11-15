@@ -1,0 +1,2 @@
+# Workshop
+14-16 Nov 2026 AVV Haridwar Campus FUTURE STACK: AI, VIBE CODE &amp; CLOUD WORKSHOP
